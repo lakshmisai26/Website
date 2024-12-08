@@ -1,1 +1,1 @@
-![image alt](https://www.istockphoto.com/photo/the-internet-was-attacked-worldwide-causing-a-major-disruption-3d-rendering-gm2013848574-561010892?utm_campaign=srp_photos_top&utm_content=https%3A%2F%2Funsplash.com%2Fs%2Fphotos%2Furl&utm_medium=affiliate&utm_source=unsplash&utm_term=url%3A%3A%3A)
+![image alt](https://github.com/lakshmisai26/Website/blob/f5348ff5414a123496f2e677ab719e5721453b61/IMG_20240626_111218.jpg)
